@@ -10,7 +10,7 @@ AtliQ is a global distributor of computer hardware, but they were facing difficu
 
 ### Checkout the project on linked in:
 
-### checkout this project on youtube: https://youtu.be/6RUBtxevABg
+### checkout this project on youtube: https://youtu.be/q-3HcltsXAo
 ## Finance View
 
 ### Objectives
